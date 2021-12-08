@@ -1,1 +1,1 @@
-# magystery
+# dimkakoval.github.io/magystery/ 
